@@ -50,7 +50,7 @@
 
  **OUTPUT**
 
- ![Screenshot (8)](https://github.com/user-attachments/assets/bbfa6c31-9006-426b-b836-515a160e189b)
+[Screenshot (5)](https://github.com/user-attachments/assets/6125cbe2-d4a1-43e5-8517-94635a8088ad)
 
 
 
